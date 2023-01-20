@@ -1,1 +1,2 @@
-# privacy-policy
+## Welcome to 🌹 LustyFlix 🌹
+> Privacy Policy Page
