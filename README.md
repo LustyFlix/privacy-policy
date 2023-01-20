@@ -1,2 +1,2 @@
-## Welcome to 🌹 LustyFlix 🌹
+## Welcome to 🌹LustyFlix🌹
 > Privacy Policy Page
